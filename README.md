@@ -1,3 +1,3 @@
 # febinaf.github.io
- Mayb the guy ur looking for is off the grid!
+## The guy ur looking for is currently off the grid!
   
